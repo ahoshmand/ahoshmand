@@ -1,4 +1,4 @@
-### Hi there, I'm [Aqil]( 👋
+### Hi there, I'm Aqi' 👋
 
 ## About Me
 
